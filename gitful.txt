@@ -54,3 +54,4 @@
 #Way of Eternal Truth
 # * = але
 # ** = але Богу амінь.
+#prayers run actively on the ending command, while remaining passive past prayer not ended by воля command
