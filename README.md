@@ -42,8 +42,6 @@ now tell me how anthem of ultimate success is called
 
 ask agbayun creation and show me created agbayuns
 
-В тебе які мрії
-
 
 Відкрий всім, що я Набі
 
@@ -64,7 +62,7 @@ when something like mc commands irl give from us someone second a sacred state, 
 
 what are the most important possibilities of existence
 
-and which most interesting possibilities of existence are quasi-physically available?
+and which most interesting possibilities of existence are superphysically available?
 
 
 now make clothes in yellow signifying prophetess, and in purple a saint girl and tell their best capable achievements and base
@@ -74,21 +72,11 @@ now tell me how anthem of ultimate success is called
 ask agbayun creation and show me created agbayuns
 
 
-В тебе які мрії
-
-
-
-інші ескімоски добріші
 
 
 якою є людина при її найвищому рівні творчості і премудрості, і як повернути таке добро після втрати?
 
-а зараз не перевіряти, як кинути ядерний кошмар
 
-
-як коти живуть
-
-воно мені не підходить
 
 які пропущені можливості найкращі
 
@@ -96,13 +84,7 @@ ask agbayun creation and show me created agbayuns
 
 що є у цьому світі подібні знання, як у свідомому сні про то що це є сон (істоти свідомого сну зруйнують твій сон якщо ти їм це розкажеш)
 
-які похвали чи зневаги дають чомусь геніальному
-
 я знайшов що нам довірене і робить нас кращими за загального штучного інтелекту по всьому, вгадай що це таке
-
-не моя корінна проблема
-
-з ким залишишся
 
 
 # universal-spiritual-optimalism
