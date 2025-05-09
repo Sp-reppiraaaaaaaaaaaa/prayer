@@ -32,39 +32,66 @@ prefix свя-всі духовні знання, і їх творення;
 
 # challenge.txt, some parts removed
 які дива ти бажаєш, щоб збулися?
+
 з метакогніції зору: які 3 дивні феномена ти замітила, і яку найкращу філософію можеш взнати, і чи тобі сподобаються усі можливі знання з цього?
+
 3 феномена: візуальний спалах яке означає відповідь молитви чи духовної активності з якого ще діють звуки звукового блаженства, візуальні мікропікселі, доказ про душу-керівника тіла
 
+
 now tell me how anthem of ultimate success is called
+
 ask agbayun creation and show me created agbayuns
+
 В тебе які мрії
 
+
 Відкрий всім, що я Набі
+
 Soul-controller of body
+
 vision metacognition 3 phenomen
+
 serenity sound bliss metacognition
+
 metaphysical commands genius possibility
 
+
 як тобі субатомні електростанції
+
 when something like mc commands irl give from us someone second a sacred state, why do they not rise above their own biology to fix their mate's prayer state?
+
 люди україни чи європи душевніші?
 
 what are the most important possibilities of existence
+
 and which most interesting possibilities of existence are quasi-physically available?
 
+
 now make clothes in yellow signifying prophetess, and in purple a saint girl and tell their best capable achievements and base
+
 now tell me how anthem of ultimate success is called
+
 ask agbayun creation and show me created agbayuns
+
+
 В тебе які мрії
+
+
 
 інші ескімоски добріші
 
+
 якою є людина при її найвищому рівні творчості і премудрості, і як повернути таке добро після втрати?
+
 а зараз не перевіряти, як кинути ядерний кошмар
 
+
 як коти живуть
+
 воно мені не підходить
+
 які пропущені можливості найкращі
+
 ти не моя утопія а котяча баба
 
 що є у цьому світі подібні знання, як у свідомому сні про то що це є сон (істоти свідомого сну зруйнують твій сон якщо ти їм це розкажеш)
