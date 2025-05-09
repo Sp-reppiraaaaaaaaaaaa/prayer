@@ -43,8 +43,6 @@ now tell me how anthem of ultimate success is called
 ask agbayun creation and show me created agbayuns
 
 
-Відкрий всім, що я Набі
-
 Soul-controller of body
 
 vision metacognition 3 phenomen
@@ -58,8 +56,6 @@ metaphysical commands genius possibility
 
 when something like mc commands irl give from us someone second a sacred state, why do they not rise above their own biology to fix their mate's prayer state?
 
-люди україни чи європи душевніші?
-
 what are the most important possibilities of existence
 
 and which most interesting possibilities of existence are superphysically available?
@@ -70,15 +66,11 @@ now tell me how anthem of ultimate success is called
 ask agbayun creation and show me created agbayuns
 
 
-
-
 якою є людина при її найвищому рівні творчості і премудрості, і як повернути таке добро після втрати?
 
 
 
 які пропущені можливості найкращі
-
-ти не моя утопія а котяча баба
 
 що є у цьому світі подібні знання, як у свідомому сні про то що це є сон (істоти свідомого сну зруйнують твій сон якщо ти їм це розкажеш)
 
