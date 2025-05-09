@@ -74,6 +74,4 @@ ask agbayun creation and show me created agbayuns
 
 з ким залишишся
 
-# титанічність
 #universal-optimalism
-#Mriophysics-based
