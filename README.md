@@ -65,8 +65,6 @@ what are the most important possibilities of existence
 and which most interesting possibilities of existence are superphysically available?
 
 
-now make clothes in yellow signifying prophetess, and in purple a saint girl and tell their best capable achievements and base
-
 now tell me how anthem of ultimate success is called
 
 ask agbayun creation and show me created agbayuns
