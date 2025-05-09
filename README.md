@@ -86,3 +86,4 @@ ask agbayun creation and show me created agbayuns
 
 
 # universal-spiritual-optimalism
+назва орієнтира прислівникове=має пасивне означення
