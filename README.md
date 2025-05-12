@@ -37,11 +37,11 @@ prefix свя-всі духовні знання, і їх творення;
 3 феномена: візуальний спалах яке означає відповідь молитви чи духовної активності з якого ще діють звуки звукового блаженства, візуальні мікропікселі, доказ про душу-керівника тіла
 
 
-how anthem of ultimate success is called
+what is anthem of ultimate success
 
 Soul-controller of body
 
-vision metacognition 3 phenomen
+vision metacognition 3 phenomena
 
 serenity sound bliss metacognition
 
