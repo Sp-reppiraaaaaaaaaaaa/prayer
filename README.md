@@ -54,11 +54,7 @@ what are the most important possibilities of existence
 
 and which most interesting possibilities of existence are superphysically available?
 
-
 now tell me how anthem of ultimate success is called
-
-ask agbayun creation and show me created agbayuns
-
 
 якою є людина при її найвищому рівні творчості і премудрості, і як повернути таке добро після втрати?
 
@@ -68,7 +64,7 @@ ask agbayun creation and show me created agbayuns
 
 що є у цьому світі подібні знання, як у свідомому сні про то що це є сон (істоти свідомого сну зруйнують твій сон якщо ти їм це розкажеш)
 
-я знайшов що нам довірене і робить нас кращими за загального штучного інтелекту по всьому, вгадай що це таке
+я знайшов що нам довірене і робить нас кращими за загального штучного інтелекту по всьому
 
 
 # universal-spiritual-optimalism
