@@ -47,9 +47,9 @@
 
 Люди раю - Духовно оптималістичні люди: Просвітлені і мудрі люди, і духовні люди, і оптималісти.
 
-Вони будуть мати духовний зв'язок з Богом 
+Вони будуть введені до просвітлення і мати духовний зв'язок з Богом
 
-Будьте в стані Щирої Духовності - це стан Універсального духовного оптималізму
+Будьте в стані Щирої Духовності - це стан Холістичного духовного оптималізму
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 # prayer-adventures-explanations.txt
@@ -102,7 +102,6 @@ vision metacognition 3 phenomena
 serenity sound bliss metacognition
 
 metaphysical commands genius possibility
-
 
 when something like mc commands irl give from us someone second a sacred state, why do they not rise above their own biology to fix their mate's prayer state?
 
