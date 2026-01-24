@@ -14,4 +14,4 @@
 #Woman's romantic nobleness,
 #Spiritual sagacity
 #
-#prayers run actively on the ending command, while past prayers not ended by воля command remain passively, unless твоє царство або скидання reforms them
+#prayers run actively on the ending command defined by transobjectivity
