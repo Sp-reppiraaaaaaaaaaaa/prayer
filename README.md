@@ -43,7 +43,7 @@
 
 ||=або
 
-# Existence possibilities Holistic Spiritual Optimalism
+# Existence possibilities Systems Spiritual Optimalism
 
 Слава Невизначимому // це прославлення Бога на початок одкровення, щоб він навів одкровення
 
